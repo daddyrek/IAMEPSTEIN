@@ -8,3 +8,30 @@ or charged.
 Epstein was arrested in 2019 by federal authorities and charged with sex trafficking and conspiracy to traffic minors. Epstein’s arrest in 2019 reopened the floodgates of victim testimony and public scrutiny. He was denied bail and found dead in his jail cell 
 at the Metropolitan Correctional Center in New York a month later. His death was ruled a suicide by hanging, but suspicious circumstances—malfunctioning cameras, sleeping guards, and a removed cellmate—fueled widespread belief that he was murdered to protect others
 involved. The phrase “Epstein didn’t kill himself” became a viral meme and cultural shorthand for elite impunity.
+
+Do you think Epstein really killed himself?
+Here are the facts.
+The Guards & the Cell
+Both guards fell asleep and falsified logs the night he died.
+Epstein was removed from suicide watch just days after a prior attempt.
+His cellmate was removed, leaving him alone — against protocol.
+Two security cameras “malfunctioned” or had corrupted footage at the time of death
+The Autopsy
+Independent experts: neck injuries were more consistent with homicide.
+The Client List That Disappeared
+Ghislaine Maxwell was convicted of trafficking children to no one. 
+How can you have 1000 victims and no perpetrators? 
+No high-profile names ever investigated or charged — despite flight logs and witness statements
+Missing Pieces
+Flight logs are incomplete and redacted.
+
+
+Surveillance footage vanished.
+
+
+Court documents still sealed
+Do you really think Epstein killed himself?
+This is how stupid they think you are. DON'T PROVE THEM RIGHT 
+More damning evidence 
+https://youtu.be/y5r0K3AbXvg?si=TD_ZKciNj-f6_-8q
+https://ia903203.us.archive.org/22/items/jeffrey-epsteins-little-black-book-unredacted_202006/Jeffrey%20Epstein%27s%20Little%20Black%20Book%20unredacted.pdf
